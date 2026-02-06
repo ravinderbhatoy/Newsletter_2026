@@ -1,6 +1,6 @@
-### Instructions to be Followed for Submitting Data for Newsletter 2025 (Vol. 13)
+### Instructions to be Followed for Submitting Data for Newsletter 2026 (Vol. 13)
 
-The Newsletter 2025 will include activities and achievements from **July 2024 to June 2025**.
+The Newsletter 2026 will include activities and achievements from **July 2025 to June 2026**.
 
 To facilitate compilation, all departmental editors are requested to follow the instructions below.
 
